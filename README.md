@@ -1,1 +1,1 @@
-# informatica
+# bienvenidos a informatica
